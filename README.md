@@ -1,7 +1,7 @@
 # 2022_05_30_TruncatedIcosahedron
 
-Buy on Etsy: https://www.etsy.com/listing/1475711866/
-[Petcha-Kucha](https://docs.google.com/presentation/d/1wX9Jt-0skCOV0O0-jGFgeg1E4smhQ-xfmCm2N-Sw6Jc/edit?usp=sharing)
+Buy on Etsy: https://www.etsy.com/listing/1475711866/  
+[Petcha-Kucha](https://docs.google.com/presentation/d/1wX9Jt-0skCOV0O0-jGFgeg1E4smhQ-xfmCm2N-Sw6Jc/edit?usp=sharing)  
 
 My mother believe in NRJ, I don't.
 But I wanted to help her.
