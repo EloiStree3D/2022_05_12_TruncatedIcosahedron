@@ -1,5 +1,7 @@
 # 2022_05_30_TruncatedIcosahedron
 
+Buy on Etsy: https://www.etsy.com/listing/1475711866/
+
 My mother believe in NRJ, I don't.
 But I wanted to help her.
 
