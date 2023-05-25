@@ -33,4 +33,5 @@ Project id: 2022_05_12_TruncatedIcosahedron
 ![image](https://user-images.githubusercontent.com/106495897/171486192-dadb9d33-8c7a-40f8-8e77-050eed594be6.png)
 ![image](https://user-images.githubusercontent.com/106495897/171486231-c70e53a9-c8a2-44b7-9401-fc1b62b79b64.png)
 ![image](https://user-images.githubusercontent.com/106495897/171486303-fcaf9e23-dbf3-4de1-adea-42eeac15a487.png)
+![image](https://github.com/EloiStree3D/2022_05_12_TruncatedIcosahedron/assets/106495897/d9e613fe-15c5-48e4-89fc-962927e5c7a0)
 
