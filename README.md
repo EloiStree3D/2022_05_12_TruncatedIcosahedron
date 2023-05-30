@@ -22,6 +22,10 @@ The version two is for 12mm stone and 6mm wood (barbecue toothpick)
 - Shungite 12mm https://amzn.to/3q9BCSj
 
 
+With time and water the wood in your sphere can break. It happens to the ball we used outside in winter.
+So you can find a repear piece for when it happens. 
+![image](https://github.com/EloiStree3D/2022_05_12_TruncatedIcosahedron/assets/106495897/ce604489-14d7-46cb-b9cd-b39868001c73)
+
 
 
 Project id: 2022_05_12_TruncatedIcosahedron
